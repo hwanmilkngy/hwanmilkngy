@@ -27,7 +27,8 @@
 
 *я довольно чувствительный, эмоциональный человек, поэтому мне тяжело выражать свои чувства в письменном или разговорном виде, и мне легче быть крашем школы с капюшоном на последней парте...*
 
-<img width="320" height="184" alt="image" src="https://github.com/user-attachments/assets/e01d9ff6-05a9-4c2b-8672-659d174b4d04" />
+<img width="320" height="184" alt="image" src="https://github.com/user-attachments/assets/e01d9ff6-05a9-4c2b-8672-659d174b4d04" /> <img width="507" height="407" alt="image" src="https://github.com/user-attachments/assets/4c258bae-1461-4b13-9be7-265f4b1b2954" />
+
 
 
 ещё я очень люблю хван хёнджина пр
