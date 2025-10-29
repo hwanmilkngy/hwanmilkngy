@@ -4,7 +4,9 @@
 
 
 
+не ищу новые знакомства :Р
 
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/9a358040-b234-43a6-9eca-3a61647f6dbb" />
 
 
 
