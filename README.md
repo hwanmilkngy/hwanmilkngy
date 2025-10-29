@@ -4,9 +4,7 @@
 
 
 
-не ищу новые знакомства :Р
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/9a358040-b234-43a6-9eca-3a61647f6dbb" />
 
 
 
@@ -30,7 +28,8 @@
 
 
 ещё я очень люблю хван хёнджина пр
-<img width="1199" height="799" alt="image" src="https://github.com/user-attachments/assets/ca588ad2-3d46-4ab2-a1ab-74e2e6ad9ca9" />
+<img width="735" height="414" alt="image" src="https://github.com/user-attachments/assets/04fdf7cc-c449-4887-b79b-b39b942b90e7" />
+
 
 <img width="369" height="538" alt="image" src="https://github.com/user-attachments/assets/5288d7c8-64b3-459f-9eac-ab12c1fa4394" />
 
