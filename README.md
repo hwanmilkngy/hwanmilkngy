@@ -23,7 +23,7 @@
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/d940813b-140c-47ac-b29a-996741d1c656" />
 
 
-люблю аврору ❤️❤️❤️✌️✌️🌞 <img width="880" height="242" alt="image" src="https://github.com/user-attachments/assets/7a4e0a5a-360a-4976-b959-cdc3ec9332e8" />
+мои друзья!!! :)) <img width="880" height="242" alt="image" src="https://github.com/user-attachments/assets/7a4e0a5a-360a-4976-b959-cdc3ec9332e8" />
 
 
 *я довольно чувствительный, эмоциональный человек, поэтому мне тяжело выражать свои чувства в письменном или разговорном виде, и мне легче быть крашем школы с капюшоном на последней парте...*
